@@ -1,2 +1,3 @@
-Christ is LORD.
-Ave Maria, Gratia Plena, Dominus Tecum!
+Submit to Rome.
+Christ is King and LORD.
+Ave Maria, Gratia Plena, Dominus Tecum! Benedicta tu in mulieribus et benedictus fructus ventris tui, Iesus!
