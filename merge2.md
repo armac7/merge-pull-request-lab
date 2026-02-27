@@ -5,3 +5,4 @@ The Father is God.
 The Father is not the Son.
 The Son is one with the Father.
 Therefore, the Trinity.
+No Trinity, No Christianity.
